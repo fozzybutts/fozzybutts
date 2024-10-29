@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fozzybutts
+- 👀 I’m interested in ... football. hockey, baseball
+- 🌱 I’m currently learning ... how not to eat rocks
+- 💞️ I’m looking to collaborate on ... something
+- 📫 How to reach me ... do not reach me
+- 😄 Pronouns: ... he/she/they
+- ⚡ Fun fact: ... exploding head syndrome is an abnormal sensory perception during sleep in which a person experiences auditory hallucinations that are loud and of short duration when falling asleep or waking up.
